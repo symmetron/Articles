@@ -1,2 +1,0 @@
-# Articles
-to share ideas
